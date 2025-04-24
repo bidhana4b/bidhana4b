@@ -1,5 +1,4 @@
-# 💫 About Me:
-🔥 About Me  <br>- **Building**: AI-driven blockchain solutions & scalable data platforms.  <br>- **Ask Me About**: AI/ML, Web3, or how I lead tech teams as a **CEO**.  <br>- **Fun Fact**: Debugged production issues mid-flight—no WiFi needed.  
+🎁 Crafting Joy Through Gifting <br>– Building: Smart & personalized gifting platforms that connect emotions with technology. <br>– Ask Me About: UX-driven tec, scaling gift-based startups, or how I bring creative tech ideas to life. <br>– Fun Fact: I once helped a customer pick the perfect gift using only emojis 😄
 
 
 ## 🌐 Socials:
